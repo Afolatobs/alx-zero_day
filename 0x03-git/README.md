@@ -1,1 +1,1 @@
- Make sure your commit
+ Make sure you committee
